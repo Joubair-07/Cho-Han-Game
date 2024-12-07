@@ -1,7 +1,7 @@
 # Cho-Han game, By alphajoubair04@gmail.com
 
 <p align="center">
-  <img src="https://japandeluxetours.com/uploads/2017/06/20170609135753_593b0bd1f1c6d.jpg" />
+  <img src="https://e0.pxfuel.com/wallpapers/711/302/desktop-wallpaper-dice-2-3d-cool-dice.jpg" />
 </p>
 
 ⭐ Cho-Han game ⭐
